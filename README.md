@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil :blue_heart
+### Boas vindas ao meu perfil 💞
 
 Meu nome é Geovanna Sartori
 
@@ -10,4 +10,4 @@ Meu nome é Geovanna Sartori
 
 000010886263600SP@al.educacao.sp.gov.br 
 
-(https://tenor.com/pt-BR/view/stitch-stich-gif-3979920456767606737)
+([https://tenor.com/pt-BR/view/stitch-stich-gif-3979920456767606737](https://media.tenor.com/NzuEkaPxj9EAAAAi/stitch-stich.gif))
